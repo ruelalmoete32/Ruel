@@ -1,5 +1,2 @@
 # Ruel
-ako
-ikaw
-lahat tayo
-update
+SN1 Almoete PN
